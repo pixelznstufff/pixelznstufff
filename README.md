@@ -2,7 +2,7 @@
 - 👀 I’m interested in growing my knowledge in many different skillsets, and different subjects.
 - 🌱 I’m currently learning and building my skills in Information Technology (IT), I am studying and working towards getting my certifications in: CompTIA A+ & CompTIA Security+
 - 💞️ I’m looking to collaborate on any projects or outside experiences, etc.
-- 📫 How to reach me: Email - angieidoko64@gmail (Professional Email) /or pixelznstuff@gmail.com (Personal Email) | Mobile Phone: (+1)872-301-7547 
+- 📫 How to reach me: Email - angieidoko64@gmail.com (Professional Email) /or pixelznstuff@gmail.com (Personal Email) | Mobile Phone: (+1)872-301-7547 
 - 😄 Pronouns: She/Her/Hers, They/Them
 - ⚡ Fun fact: ...
 
